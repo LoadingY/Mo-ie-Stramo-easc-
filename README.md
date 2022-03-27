@@ -1,1 +1,1 @@
-# Mo-ie-Stramo-easc-
+# Mosie Stramoseasca
